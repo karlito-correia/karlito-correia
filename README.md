@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @karlito-correia
+- 👋 Hi, I’m @karlito-dako
 - 👀 I’m interested in all the things
 - 🌱 I’m currently learning as much as I can
 - 💞️ I’m looking to collaborate on interesting things
